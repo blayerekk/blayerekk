@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @blayerekk
+- 👋 Hi I’m blayerekk
